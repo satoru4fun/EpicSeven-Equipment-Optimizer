@@ -1,0 +1,1 @@
+# EpicSeven-Equipment-Optimizer
